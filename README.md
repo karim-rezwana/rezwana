@@ -1,3 +1,3 @@
-# rezwanakarim.github.io
+# rezwana
 ## This is my personal portfolio 
 
